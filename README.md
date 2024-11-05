@@ -1,1 +1,0 @@
-# Now24sapporo.io
